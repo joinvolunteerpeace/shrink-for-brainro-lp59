@@ -1,4 +1,4 @@
-
+elite Scripts for shrink for brainrots is the best shrink for brainrots Script, featuring auto-heal and infinite resources. Safe and powerful for all
 
 
 
